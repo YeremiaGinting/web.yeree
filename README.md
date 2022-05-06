@@ -1,2 +1,2 @@
 # web.yeree
-terimakasih telah berkunjung
+terimakasih telah berkunjung :)
